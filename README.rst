@@ -1,3 +1,6 @@
+
+https://www.securitynewspaper.com/2019/01/25/jok3r-one-tool-to-do-all-hacking/
+
 .. raw:: html
 
    <h1 align="center">
